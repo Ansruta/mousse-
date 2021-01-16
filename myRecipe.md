@@ -1,0 +1,1 @@
+Boil 500 ml milk ,add sugar(10sp),cocoa powder(4sp),corn flour(10sp) and heat till it thickens.Refrigerate.
